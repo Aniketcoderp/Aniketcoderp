@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **aniketsavita18@gmail.com**
 
-- 📄 Know about my experiences [https://resume-builder-test-new.masaischool.com/resume/public?resumeId=670775137ca4c4119e546753](https://resume-builder-test-new.masaischool.com/resume/public?resumeId=670775137ca4c4119e546753)
+- 📄 Know about my experiences [https://resume-builder-test-new.masaischool.com/resume/public?resumeId=670775137ca4c4119e546753](https://resume-builder-test-new.masaischool.com/resume/public?resumeId=673c86937ca4c4119e9264dd)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
